@@ -1,0 +1,1 @@
+# karli-urun-tarayici-2025
